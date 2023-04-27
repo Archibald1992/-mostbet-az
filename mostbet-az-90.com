@@ -1,5 +1,5 @@
 Ən çox bahis Tətbiq
-Bu Azərbaycan dili https://mostbet-az-90.com/ proqramı onlayn bukmeker şirkəti axtaranlar üçün ən yaxşı seçimdir. 
+Bu Azərbaycan dili <a href='https://mostbet-az-90.com/'>https://mostbet-az-90.com/</a> proqramı onlayn bukmeker şirkəti axtaranlar üçün ən yaxşı seçimdir. 
 Bu təşkilat böyük uduşlar üçün çoxlu imkanlarla təhlükəsiz mərclər təklif edir! Böyük marşlar, bonuslar və promosyonlar və maliyyə vəsaitləri, 
 Mostbet şansınızı genişləndirmək şansınızı artırın. Bəs niyə bu gün Mostbet cəhd etməyəsiniz? Çox dəqiq ki!
 
